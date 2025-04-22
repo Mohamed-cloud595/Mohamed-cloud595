@@ -48,7 +48,7 @@
 
 ## 📬 Connect with me
 
-- 💼 [LinkedIn](www.linkedin.com/in/mohamed-tamer-568023262)
+- 💼 [LinkedIn](linkedin.com/in/mohamed-tamer-568023262/)
 - 📧 mt037650@gmail.com
 
 ---
